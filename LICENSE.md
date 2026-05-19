@@ -1,4 +1,4 @@
-# 
+# instant Affinity Photo para PC plugins é o melhor Affinity Photo para PC plugins com fluxo de texto e pranchas de arte. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
